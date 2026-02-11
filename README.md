@@ -1,2 +1,0 @@
-# Krushimol
-Agriculture information
